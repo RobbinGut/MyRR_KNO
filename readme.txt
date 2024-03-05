@@ -1,1 +1,1 @@
-This file shows info about project
+Kuzmentsov Nazar[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[DAuthor Kuzmentsov Nazar
